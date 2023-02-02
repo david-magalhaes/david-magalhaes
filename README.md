@@ -7,7 +7,7 @@ Gosto de resolver problemas e aprender novas coisas. Sempre aberto a novos desaf
 ### 🌎 "Não há nada mais pornográfico do que a felicidade" ✨
 
  - 📍 From São Paulo
- - 👨🏾‍💻 Product Support Analyst ll at [Loggi](https://www.loggi.com)
+ - 👨🏾‍💻 Senior Product Support Analyst at [Loggi](https://www.loggi.com)
 
 Reach me out 👇🏾      
 
