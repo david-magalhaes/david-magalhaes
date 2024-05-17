@@ -4,7 +4,6 @@ Me chamo David Magalhães, estudante e analista de sistemas.
 
 Gosto de resolver problemas e aprender novas coisas. Sempre aberto a novos desafios e pronto para encarar mudanças.
 
-### 🌎 "Não há nada mais pornográfico do que a felicidade" ✨
 
  - 📍 From São Paulo
  - 👨🏾‍💻 Senior Product Support Analyst at [Loggi](https://www.loggi.com)
